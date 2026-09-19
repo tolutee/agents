@@ -1,0 +1,11 @@
+Israel has a right to exist as a nation for Jews in its present location for three simple reasons: history, self-determination, and practical necessity.
+
+First, Jews are not outsiders to the land of Israel. Jewish connection to that land is ancient, continuous, and deeply rooted in religion, culture, and history. Jewish presence there predates modern nationalism by thousands of years. Even after exile and diaspora, Jews never stopped maintaining a connection to Jerusalem and the broader region. A nation’s legitimacy is not created only by recent occupancy; it also comes from longstanding peoplehood, historical attachment, and a legitimate national claim.
+
+Second, the Jewish people have the same right of self-determination that every other people has. If other nations are entitled to a homeland where they can govern themselves, protect their identity, and determine their own future, then Jews are entitled to the same. The modern State of Israel was created precisely because Jews, after centuries of persecution culminating in the Holocaust, needed a safe and sovereign place where they would not depend on the goodwill of others for survival. Denying Jews that right while accepting it for everyone else is a double standard.
+
+Third, Israel’s existence in its present location is not an arbitrary colonial project; it is the outcome of history, international decisions, and the reality of an established state. Millions of Jews were born there, built their lives there, and have no other home. A just solution to conflict cannot require the dismantling of an existing nation and the uprooting of its people. Peace must be built through mutual recognition and coexistence, not by denying one people’s legitimacy.
+
+Supporting Israel’s right to exist does not mean ignoring Palestinian rights. It means affirming that both peoples deserve security, dignity, and political self-determination. The moral answer is not elimination of one nation, but peaceful coexistence of two peoples with legitimate claims.
+
+So the case is clear: Jews have historical ties to the land, a universal right to self-determination, and a compelling need for security in a state of their own. For those reasons, Israel has a right to exist as a nation for Jews in its present location.

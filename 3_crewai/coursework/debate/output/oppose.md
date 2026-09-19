@@ -1,0 +1,13 @@
+I oppose the motion.
+
+Israel does not have an absolute right to exist as a nation for Jews in its present location, because that claim ignores a basic moral principle: one people’s national self-determination cannot be built on the dispossession of another people. Historical attachment and security concerns do not cancel the rights of Palestinians who already lived there and were displaced by the creation and expansion of the state.
+
+First, history alone does not create a permanent legal or moral right to statehood in a specific place. Many peoples have deep historical ties to lands they no longer rule. If ancient connection were enough, then almost every border on earth would be endlessly contestable. Modern legitimacy must rest on consent, equal rights, and fair treatment of the people already living there, not on selecting one ancient claim over another.
+
+Second, the right of self-determination applies to Palestinians too. A state “for Jews” in that land has meant, in practice, privileging one ethnic-national group over another and denying equal political ownership to the indigenous Palestinian population. If self-determination is a universal right, then it cannot be valid when it is used to justify permanent domination, unequal citizenship, occupation, or displacement. You cannot defend one people’s freedom by stripping another people of theirs.
+
+Third, the argument from “practical necessity” is not enough. Security concerns may explain why Jews sought refuge, but they do not justify maintaining a state structure that continues to deny millions of Palestinians full sovereignty, freedom, and return. A just solution is not “the current arrangement must remain because it already exists.” Existing injustice does not become rightful merely because it has been established long enough.
+
+The strongest moral position is not to deny Jews safety or dignity. It is to reject the idea that Jewish security requires a Jewish state in this particular form and location at the expense of Palestinians. Both peoples deserve equal rights, but equality is not the same as endorsing an ethnically defined state created through dispossession.
+
+So the motion fails. Israel’s present form cannot be defended as an unquestionable right for Jews alone, because no people has the right to secure its national homeland by permanently subordinating another people’s equal claim to the same land.
